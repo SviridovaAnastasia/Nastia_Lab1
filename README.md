@@ -1,1 +1,0 @@
-# Nastia_Lab1
